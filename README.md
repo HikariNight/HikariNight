@@ -31,7 +31,7 @@ Hobbies aside from coding?
 Consuming media and [Drawing](https://media.discordapp.net/attachments/1201633633631477952/1378512647401767047/Ghostnuts_Commission_-_Colour_Ew.png?ex=684c08b2&is=684ab732&hm=d7f68e29097a9028995206bbbfb526be1c3a26d78105c62373aedfd7b4c65095&=&format=webp&quality=lossless&width=794&height=864)! Table tennis is very fun too, always down for that
 
 Why the anime profile picture?   
-It's Gillian he's a cool bartender from a [video game](https://store.steampowered.com/app/447530/VA11_HallA_Cyberpunk_Bartender_Action/)
+It's Gillian, he's a cool bartender from a [video game](https://store.steampowered.com/app/447530/VA11_HallA_Cyberpunk_Bartender_Action/)
 
 
 
