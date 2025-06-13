@@ -28,7 +28,7 @@ Why's your name Hikari?
 Thought it was cool until nobody could pronounce it, I like the symbol - [光](https://jisho.org/search/hikari)
 
 Hobbies aside from coding?    
-Consuming media and [Drawing](https://media.discordapp.net/attachments/1201633633631477952/1378512647401767047/Ghostnuts_Commission_-_Colour_Ew.png?ex=684c08b2&is=684ab732&hm=d7f68e29097a9028995206bbbfb526be1c3a26d78105c62373aedfd7b4c65095&=&format=webp&quality=lossless&width=794&height=864)! Table tennis is very fun too, always down for that
+Consuming media and [Drawing](https://media.discordapp.net/attachments/907361119428030474/1383134082283733123/image.png?ex=684daf7e&is=684c5dfe&hm=2ce58f23366e69935f912ce288f77339a5aa5e9fb3777ff90f408b96bde476c2&=&format=webp&quality=lossless&width=889&height=968)! Table tennis is very fun too, always down for that
 
 Why the anime profile picture?   
 It's Gillian, he's a cool bartender from a [video game](https://store.steampowered.com/app/447530/VA11_HallA_Cyberpunk_Bartender_Action/)
