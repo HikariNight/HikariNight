@@ -22,16 +22,6 @@ Computer Science student with a passion for most things to do with Computers
 
   ![C++ Badge](https://img.shields.io/badge/C%2B%2B-00599C?style=for-the-badge&logo=c%2B%2B&logoColor=white) 
 
-## Q&A
-
-Why's your name Hikari?   
-Thought it was cool until nobody could pronounce it, I like the symbol - [光](https://jisho.org/search/hikari)
-
-Hobbies aside from coding?    
-Consuming media and Drawing! Table tennis is very fun too, always down for that
-
-Why the anime profile picture?   
-It's Gillian, he's a cool bartender from a [video game](https://store.steampowered.com/app/447530/VA11_HallA_Cyberpunk_Bartender_Action/)
 
 
 
